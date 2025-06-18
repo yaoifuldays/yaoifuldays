@@ -1,4 +1,9 @@
 <p align="center">
+◟ ᛝ ˙　naib　 ⸝⸝　♂️　<img src="https://64.media.tumblr.com/086eaaa72f969ed6e8a8e9c483d9bf84/34032e69611f17da-7f/s75x75_c1/2751be925ef5cf6838e25de0926b2ed8780f38f1.gifv">⠀་།† ‿ 𝜗℘
+
+
+
+<p align="center">
 <img src="https://64.media.tumblr.com/3535de2ed110d68d3cc51d2ba9984659/tumblr_pdf5sariQF1u7qlfpo6_250.gifv">
 
 <p align="center">
