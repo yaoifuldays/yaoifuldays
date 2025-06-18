@@ -2,7 +2,7 @@
 <img src="https://64.media.tumblr.com/98582d066860d0fd657575c5020090c3/6d6a639539246533-31/s640x960/0549bb6ab3ecb4530433d92f6bbd805b604924b0.pnj">
 
 <p align="center">
-<img src="https://64.media.tumblr.com/d880e9d06c66ca072060e27122e5051c/ca5481731d8f786f-d7/s400x600/36029db82103306b0378a1e72b7d358f650ffd35.pnj">
+<img src="https://64.media.tumblr.com/2f344674aaf28c60d3a59f9936d3795a/2cc256677389677f-d0/s640x960/84d56bedf1f8a1b808ee49b8b1f17d7b48c48d76.pnj">
 
 <p align="center">
 ◟ ᛝ ˙　naib　 ⸝⸝　♂️　<img src="https://64.media.tumblr.com/086eaaa72f969ed6e8a8e9c483d9bf84/34032e69611f17da-7f/s75x75_c1/2751be925ef5cf6838e25de0926b2ed8780f38f1.gifv">⠀་།† ‿ 𝜗℘
