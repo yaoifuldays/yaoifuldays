@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/34e26a8c749c259d0fc932c9ec6c9e21/43b80da47b652ef3-b7/s250x400/c4ffb1716213e74b4cf67e3c1ed3cd6e2f7d2620.pnj">
+<img src="">
 
 <p align="center">
 ◟ ᛝ ˙　naib　 ⸝⸝　♂️　<img src="https://64.media.tumblr.com/086eaaa72f969ed6e8a8e9c483d9bf84/34032e69611f17da-7f/s75x75_c1/2751be925ef5cf6838e25de0926b2ed8780f38f1.gifv">⠀་།† ‿ 𝜗℘
